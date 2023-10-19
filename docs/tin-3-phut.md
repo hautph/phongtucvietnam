@@ -11,7 +11,7 @@ Cụ thể, chị TTT đã có những hành động được cho là trêu gh�
 
 Được biết anh N. đã có người yêu nhưng ở xa, 1 tháng về thăm người yêu 1 lần. Điều này khiến chị TTT gặp nhiều khó khăn trong việc "thả thính".
 
-![Ảnh chị TTT bên người khác](/tin-3-phut/tin-3-phut-02.jpg)
+![Ảnh chị TTT bên người khác](/docs/tin-3-phut/tin-3-phut-02.jpg)
 
 **Ghi chú**: anh Đ. nhìn thấy hình ảnh chị TTT đang nói chuyện với đồng nghiệp nam ( không phải anh N. ) nhưng không nói câu nào, quay lưng đi chổ khác.
 
@@ -21,7 +21,7 @@ Hôm qua đã xẩy ra 1 sự kiện mới, đó là cty VNH tan làm lúc 5h, n
 
 Khi phóng viên bước ra thì gặp nữ chính dừng xe bên cạnh 1 chàng trai nào đó. Phóng viên đã chụp lại 2 tấm hình, ban đầu phóng viên tưởng là anh T. nhưng khoảng 10s sau anh T. mới từ cổng bảo vệ chạy ra, lúc này chị M. và anh P. đã cùng rời đi, khi kiểm tra lại bản số xe thì là xe của anh P.
 
-![Ảnh chị M. và anh P](/tin-3-phut/tin-3-phut-01.png)
+![Ảnh chị M. và anh P](/docs/tin-3-phut/tin-3-phut-01.png)
 
 Đây là tình huống khá khó hiểu với phóng viên. Chúng tôi cần thời gian thêm để quan sát.
 
